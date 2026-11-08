@@ -1,0 +1,1 @@
+proje zaten readme gibi
